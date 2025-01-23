@@ -17,6 +17,14 @@
 
 राजधानी चार्ट मटका गेम के नियमित खिलाड़ियों के लिए जरूरी उपकरण है। इस चार्ट का सही उपयोग करके खिलाड़ी परिणामों में आने वाले पैटर्न और ट्रेंड का अनुमान लगा सकते हैं, जिससे वे अधिक सटीक भविष्यवाणी कर सकते हैं।  
 
+
+1. [sridevi night chart open jodi result](https://github.com/sridevi-night-chart-open-jodi-result)
+2. [Satta Matka Result Kalyan Final Ank](https://github.com/Satta-Matka-Result-Kalyan-Final-Ank/)
+3. [satta matka king kalyan main bazar ank](https://github.com/satta-matka-king-kalyan-main-bazar-ank/)
+4. [rajdhani night chart result jodi-panel](https://github.com/rajdhani-night-chart-result-jodi-panel)
+5. [milan night chart result open jodi](https://github.com/milan-night-chart-result-open-jodi)
+6. [kalyan matka chart result open jodi](https://github.com/kalyan-matka-chart-result-open-jodi)
+7. [SATTA KING 2025 CHART RESULT](https://github.com/SATTA-KING-2025-CHART-RESULT)
 ---
 
 ### Rajdhani Result | राजधानी रिजल्ट  
